@@ -33,5 +33,3 @@ To write u have to go on the app Typora then choose your work place folder......
 7. Go to web  version GitHub to check your work and edit to see if it is satisfactory then u can see your results in https://ninagu2010.github.io
 
 ![image-20200502115139953](../images/image-20200502115139953.png)
-=======
-![image-20200502115139953](../images/image-20200502115139953.png)
