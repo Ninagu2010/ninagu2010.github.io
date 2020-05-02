@@ -4,7 +4,7 @@
 
 
 
-![image-20200503084151251](E:\github\ninagu2010.github.io\images\image-20200503084151251.png)
+![image-20200503084151251](/images/image-20200503084151251.png)
 
 
 
