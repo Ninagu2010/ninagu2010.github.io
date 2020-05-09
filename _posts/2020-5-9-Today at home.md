@@ -10,4 +10,4 @@ We washed the dogs and let them dry after that, we took the dogs on a walk to th
 
 
 
-![image-20200509183355887](E:\github\ninagu2010.github.io\images\image-20200509183355887.png)  
+![image-20200509183355887](/images/image-20200509183355887.png)  
