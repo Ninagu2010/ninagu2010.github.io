@@ -8,7 +8,7 @@ Today we did some maths about converting 12 hour time to 24 hour time. In Englis
 
 In the afternoon we had music and did a echo game and a worksheet for colouring.
 
-![image-20200507154851125](E:\github\ninagu2010.github.io\images\image-20200507154851125.png)
+![image-20200507154851125](/images/image-20200507154851125.png)
 
 
 
@@ -16,4 +16,4 @@ In the afternoon we had music and did a echo game and a worksheet for colouring.
 
 
 
-![image-20200507154937344](E:\github\ninagu2010.github.io\images\image-20200507154937344.png)
+![image-20200507154937344](/images/image-20200507154937344.png)
