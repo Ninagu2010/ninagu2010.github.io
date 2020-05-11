@@ -1,4 +1,4 @@
-Today i learned a word called : Celebral Palsy 
+Today I learned a word called " Celebral Palsy" 
 
 
 
