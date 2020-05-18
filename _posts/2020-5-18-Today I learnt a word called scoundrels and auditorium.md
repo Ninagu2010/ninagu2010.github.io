@@ -1,0 +1,14 @@
+Today I learnt a word called scoundrels and auditorium 
+
+
+
+Scoundrels means a dishonest or unscrupulous person or a rouge 
+
+![image-20200518182013194](E:\github\ninagu2010.github.io\images\image-20200518182013194.png)
+
+I learnt another word called auditorium 
+
+It means a part of the theatre, Concert hall or other public buildings
+
+![image-20200518184011849](E:\github\ninagu2010.github.io\images\image-20200518184011849.png)
+
