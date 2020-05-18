@@ -10,5 +10,5 @@ I learnt another word called auditorium
 
 It means a part of the theatre, Concert hall or other public buildings
 
-![image-20200518184011849](E:\github\ninagu2010.github.io\images\image-20200518184011849.png)
+![image-20200518184436898](../images/image-20200518184436898.png)f
 
