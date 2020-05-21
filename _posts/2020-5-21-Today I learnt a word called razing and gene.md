@@ -1,6 +1,6 @@
 ---
 layout: post
-title:Today I learnt a word called Razing and Gene
+title: Today I learnt a word called Razing and Gene
 ---
 
 
