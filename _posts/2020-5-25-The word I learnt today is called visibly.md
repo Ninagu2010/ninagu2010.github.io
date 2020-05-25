@@ -1,3 +1,9 @@
+
+---
+layout: post
+title: New word called visibly 
+---
+
 The word I learnt today is called visibly 
 
 
