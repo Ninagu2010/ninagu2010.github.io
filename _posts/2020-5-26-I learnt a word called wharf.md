@@ -1,3 +1,10 @@
+
+
+---
+layout: post
+title: Today I learnt a word called wharf and 50 words
+---
+
 I learnt a word called wharf 
 
 
