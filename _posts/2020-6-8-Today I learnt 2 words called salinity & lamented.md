@@ -1,4 +1,4 @@
-Today I learnt 2 words called salinity & lamented
+## Today I learnt 2 words called salinity & lamented
 
 
 
