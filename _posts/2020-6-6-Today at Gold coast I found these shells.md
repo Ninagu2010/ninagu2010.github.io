@@ -1,6 +1,14 @@
-Today at Gold coast I found these shells
 
-![image-20200606191622028](E:\github\ninagu2010.github.io\images\image-20200606191622028.png)
+
+---
+layout: post
+title: I found these beautiful shells
+---
+
+
+## Today at Gold coast I found these shells
+
+![image-20200606191622028](/images/image-20200606191622028.png)
 
 
 
