@@ -8,7 +8,7 @@ a shallow recess, especially one in a wall to display a statue or other ornament
 
 
 
-![image-20200611180646986](E:\github\ninagu2010.github.io\images\image-20200611180646986.png)
+![image-20200611180646986](/images/image-20200611180646986.png)
 
 
 
@@ -20,7 +20,7 @@ molecule means a group of atoms bonded together, representing the smallest funda
 
 
 
-![image-20200611181604836](E:\github\ninagu2010.github.io\images\image-20200611181604836.png)
+![image-20200611181604836](/images/image-20200611181604836.png)
 
 
 
