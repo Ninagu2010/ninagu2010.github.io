@@ -11,3 +11,5 @@ Today I learnt 2 words called thermal energy & omnivore
 Omnivore means an animal or person that eats a variety of food of both plant and animal origin.
 
 ![image-20200615183609624](/images/image-20200615183609624.png)
+
+extend, guarantee, grab, witness, amazing, commerece, priest, boasted, render, scare, trigger, tray, delegation, contact, influenza, invade, behaviour, bug, panic, royal, rarely, constitute, irregular, oblige, overwhelm, fame, workout, violate, awesome, vain, motorway, largely, congratulate, assume, sheer, emphasize
