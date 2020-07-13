@@ -8,15 +8,15 @@ We stood at the back tray when we went 4WD driving on different tracks.
 
  And on the holidays we went to the hyperdome to see robins kitchen stuff e.g pans utensils, after that I bought a big lolly for $4 dollars and bought chicken sushi.
 
-![image-20200713182819904](E:\github\ninagu2010.github.io\images\image-20200713182819904.png)
+![image-20200713182819904](/images/image-20200713182819904.png)
 
 
 
-![image-20200713182850038](E:\github\ninagu2010.github.io\images\image-20200713182850038.png)
+![image-20200713182850038](/images/image-20200713182850038.png)
 
 
 
-![image-20200713182913273](E:\github\ninagu2010.github.io\images\image-20200713182913273.png)
+![image-20200713182913273](/images/image-20200713182913273.png)
 
 
 
