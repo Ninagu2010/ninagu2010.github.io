@@ -6,4 +6,4 @@ Structural adaptation means are physical features of an organism like the bill o
 
 
 
-Behavioural adaptations are the things organisms do to survivef
+Behavioural adaptations are the things organisms do to survive
